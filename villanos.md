@@ -1,4 +1,4 @@
 * Dr. Doom
 * Red skull
 * Dr Strange
-* Dr Octubus
+* Capitan America
